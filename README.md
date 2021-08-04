@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @TrivixEXE
+- 👀 je veux apprendre le coding
+- 🌱 j'apprend l'informatique 
+- j'ai un twitch : Twitch.tv/TrivixV2
+- et mon discord : .Trivix#0001
